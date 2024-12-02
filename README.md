@@ -1,5 +1,5 @@
 Imp:- My old Github Account got suspended currently it is processing...
-Till then this the temporary account :)
+Till then this the main account :)
 
 - 👋 Hi, I’m Ansh Singh Kushwaha
 - 👀 I’m interested in creating Mobile Apps 
